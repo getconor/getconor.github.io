@@ -1,1 +1,1 @@
-#### This site will be unavailable until mid-December 2018.
+#### This site is being redesigned and will return in July, 2019.
