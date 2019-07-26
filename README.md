@@ -1,1 +1,1 @@
-#### This site is being redesigned and will return in July, 2019.
+#### I'm rebuilding and redesigning. New site should arrive later this summer (2019).
